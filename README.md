@@ -1,1 +1,1 @@
-ubi me ako zanam sta radim..
+ubi me ako znam sta radim..
